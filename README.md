@@ -8,6 +8,6 @@
 
 酷酷社區需要忠于、喜爱的各位大爷、小弟共同维护，你的赞举决定我們的離去。 
 
-目前访问域名：www.coobbb.com   这是跳传的 wwww.kuaipatv.com
+目前访问域名：www.coobbb.com   这是跳传的 www.kuaipatv.com
 
 请收藏本页面，请收藏本页面，请收藏本页面，用于发布更新网址。  
