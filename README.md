@@ -12,4 +12,4 @@ Hello！潮云社
 
 联系邮箱：paopao1928@gmail.com 处理删帖、地址获取、广告。
 
-请收藏本页面，请收藏本页面，请收藏本页面，用于发布更新网址。 
+请收藏本页面用于发布新动态 https://github.com/coobbb/com/ 按CTRL+D 永久陪伴 防止迷路。 
