@@ -10,4 +10,6 @@ Hello！潮云社
 
 源站访问域名：http://www.chaoyunshe.com
 
+联系邮箱：paopao1928@gmail.com 处理删帖、地址获取、广告。
+
 请收藏本页面，请收藏本页面，请收藏本页面，用于发布更新网址。 
