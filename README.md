@@ -1,4 +1,4 @@
-Hello！
+Hello！潮云社
 
 2019年创办，源于互联网分享，传说中的‘雅麻蝶’“思密达”是我们的特色。
 
@@ -13,4 +13,4 @@ NEW访问域名：http://www.chaoyunshe.com
 联系邮箱：paopao1928@gmail.com 处理删帖、地址获取、广告。
 
 请收藏本页面用于发布新动态 https://github.com/coobbb/com/ 按CTRL+D恒久远,一键永流转~~~ 
-                                                                                       ——潮云社
+                                                                                     
