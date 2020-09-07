@@ -8,7 +8,7 @@ Hello！潮云社
 
 我们不提供存储，用户自行发布视频播放地址、可设付费可提现，承蒙各位大爷，你的赞举将助于我们澎湃。
 
-NEW访问域名：http://www.chaopx.com
+NEW访问域名：https://www.chaopx.com
 
 联系邮箱：paopao1928@gmail.com 处理删帖、地址获取、广告。
 
