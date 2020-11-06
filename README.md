@@ -8,7 +8,7 @@ Hello！泡泡视频
 
 NEW访问域名：https://www.paopao91.com
 
-联系邮箱：imnoto@163.com 处理删帖、地址获取、广告。
+联系邮箱：imnoto@163.com 处理删帖、意见反馈、广告。
 
 请收藏本页面用于发布新动态 https://github.com/coobbb/com/ 按CTRL+D恒久远,一键永流转~~~ 
                                                                                      
