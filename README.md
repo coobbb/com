@@ -6,7 +6,7 @@ hello！酱油TV
 
 诚然重金铸成的服务器、宽带成本、即使栉风沐雨，筚路蓝缕，薪火相传，也没有免费的午餐。 
 
-NEW访问域名：https://www.jiangyou.tv
+NEW访问域名：https://www.jiangyoutv.com
 
 联系邮箱：imnoto@163.com 处理删帖、意见反馈、广告。
 
