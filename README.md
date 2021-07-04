@@ -4,7 +4,7 @@ hello！酱油TV
 
 现发布访问的域名：
 
-酱油TV:https://www.jiangyou.tv 
+酱油TV: https://www.jiangyou.tv 
 
 备用二：http://www.jiangyoutv.com
 
