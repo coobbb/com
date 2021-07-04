@@ -10,7 +10,7 @@ hello！酱油TV
 
 备用三：https://www.jiangyou.me
 
-联系邮箱：jiangyoutv@163.com 广告、友链、会员、删帖。
+联系邮箱：jiangyoutv@163.com 广告、友链、会员、删除。QQ1611459588
 
 请收藏本页面用于发布新动态 https://github.com/coobbb/com/ 按CTRL+D恒久远,一键永流转~~~ 
                                                                                      
